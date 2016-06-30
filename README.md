@@ -1,3 +1,3 @@
 ## Resume
 
-Resume last updated August 25, 2015.
+Resume last updated June 29, 2016.
